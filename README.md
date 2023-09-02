@@ -1,2 +1,2 @@
 # timsweetsir.github.io
- Tim Sweetsir Author
+ Website for Tim Sweetisr, Author
